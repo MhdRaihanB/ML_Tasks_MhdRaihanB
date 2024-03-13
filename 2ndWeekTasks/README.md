@@ -1,1 +1,0 @@
-TUGAS MINGGU 2
